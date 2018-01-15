@@ -15,5 +15,4 @@
 
 INST Подписываемся!!! [ссылка](https://www.instagram.com/?hl=ru)
 
-
-![](./pic/https://pp.userapi.com/c824204/v824204409/61d63/uSFlKgPzQCQ.jpg =250x)
+![alt-текст](https://pp.userapi.com/c824204/v824204409/61d63/uSFlKgPzQCQ.jpg =100)
