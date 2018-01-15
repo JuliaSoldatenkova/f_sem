@@ -10,4 +10,4 @@
 * 
 МВК [ссылка](https://vk.com/ju_julia_ss)
 
-![alt-текст](https://pp.userapi.com/c824204/v824204409/61d63/uSFlKgPzQCQ.jpg){width=10%}
+![alt-текст](https://pp.userapi.com/c824204/v824204409/61d63/uSFlKgPzQCQ.jpg){ width=0.1}
