@@ -3,6 +3,12 @@
 
 Меня зовут Юля, и мне 18 лет. Я учусь в Вышке на ИЯИМКК на 1 курсе.
 
+:blush:
+:blush:
+:blush:
+:blush:
+:blush:
+
 #### Немного фактов обо мне:
 * Я учу английский и французский
 * Играю на гитаре
@@ -16,9 +22,3 @@
 INST Подписываемся!!! [ссылка](https://www.instagram.com/?hl=ru)
 
 ![alt-текст](https://pp.userapi.com/c824204/v824204409/61d63/uSFlKgPzQCQ.jpg)
-
-:blush:
-:blush:
-:blush:
-:blush:
-:blush:
