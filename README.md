@@ -13,6 +13,6 @@
 
 Мой ВК [ссылка](https://vk.com/ju_julia_ss)
 
-INST [ссылка] (https://www.instagram.com/?hl=ru) Подписываемся!!!
+INST Подписываемся!!! [ссылка](https://www.instagram.com/?hl=ru)
 
 ![alt-текст](https://pp.userapi.com/c824204/v824204409/61d63/uSFlKgPzQCQ.jpg)
